@@ -132,5 +132,4 @@ Now you know this page is all a troll, thanks for visiting !
 
 
 
-now, you know that this page is all a troll, thanks for visiting !
 
